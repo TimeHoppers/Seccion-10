@@ -1,2 +1,2 @@
 # Seccion-10
-Daniel Rayo
+Josue Garcia 24918
