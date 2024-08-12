@@ -1,2 +1,3 @@
 # Seccion-10
-Daniel Rayo
+Vernel Josue Hernández Cáceres
+Carné: 24584
