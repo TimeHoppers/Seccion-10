@@ -1,2 +1,2 @@
 # Seccion-10
-Daniel Rayo
+Axel Cruz 24656
